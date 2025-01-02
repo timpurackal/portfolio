@@ -4,7 +4,11 @@
 
 ## The Journey
 
+## Interests
+
 ### The Genesis of a Tech Enthusiast.
+
+
 
 
 ## Articles
